@@ -9,7 +9,7 @@
 
 - My projects are [najiro.io.github.com](najiro.io.github.com)
 
-- I regularly write articles on [https://www.linkedin.com/in/harold-a-aguirre-g-1a4965229/](https://www.linkedin.com/in/harold-a-aguirre-g-1a4965229/)
+- I regularly write articles on [Linkedin](https://www.linkedin.com/in/harold-a-aguirre-g-1a4965229/)
 
 - You can reach me **haroldantonio777@gmail.com**
 
