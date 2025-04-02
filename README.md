@@ -7,13 +7,13 @@
 
 - I'll like to collaborate in **Games Projects**
 
-- My projects are [najiro.io.github.com](najiro.io.github.com)
+- My projects are [najiro.github.io](https://najiro8v.github.io/)
 
 - I regularly write articles on [Linkedin](https://www.linkedin.com/in/harold-a-aguirre-g-1a4965229/)
 
 - You can reach me **haroldantonio777@gmail.com**
 
-- Know about my experiences [najiro.io.github.com](najiro.io.github.com)
+- Know about my experiences [najiro.github.io](https://najiro8v.github.io/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
